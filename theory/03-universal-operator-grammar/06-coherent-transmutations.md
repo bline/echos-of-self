@@ -44,7 +44,7 @@ Below are the primary transmutations for the key constellations we have identifi
 *   **Distorted Energy:** The energy of service and connection, distorted by a fear of Worthlessness into a performance designed to "earn" love.
 *   **Coherent Transmutation:** The same energy transmutes into authentic **Generosity**. The Contributor gives freely as an expression of their own inherent sufficiency, not as a transaction to fill a void. Because there is no covert contract, there is no resentment. They can give joyfully and also receive graciously.
 
-### 2.5 The Protector (Savior) → The Compassionate Mentor
+### 2.5 The Protector → The Compassionate Mentor
 
 *   **Distorted Energy:** The energy of empathy and care, distorted by a moral injury into a compulsive need to rescue others to repair a past wound.
 *   **Coherent Transmutation:** The same energy transmutes into wise **Mentorship**. The Mentor does not need to "save" anyone to validate their own identity. They can offer their wisdom, support, and compassion freely, while always respecting the other person's sovereignty and their right to their own journey. They help others find their own strength, rather than providing it for them.
