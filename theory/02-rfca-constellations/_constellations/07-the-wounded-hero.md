@@ -38,5 +38,5 @@ The Wounded Hero is the ultimate catalyst for the Protector's Salvation Fantasy.
 ## 5. The Path of Transmutation: Choosing the Hard Road
 
 The healing journey for the Wounded Hero involves recognizing their own strength and learning that vulnerability is not a fatal flaw. It is a process of integrating the Guardian and the Authentic Self.
-*   **Acknowledging the Choice:** A key moment in their healing is often the conscious recognition that they chose the Middle Path. As Marie stated, *"I am relieved I did not choose to be angry forever."* This affirms their agency and honors the difficulty of their journey.
+*   **Acknowledging the Choice:** A key moment in their healing is often the conscious recognition that they chose the Middle Path.
 *   **Learning Safety:** The ultimate goal is to internalize the knowledge that they "would be ok" without the constant, exhausting vigilance. It is the slow, courageous process of learning that there are people who are safe, and that the fortress, which was once a life-saving necessity, can now become a home with doors that open from the inside.
