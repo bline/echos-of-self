@@ -26,8 +26,6 @@ To be in this state is to have no stable "I." The experience is one of profound 
 
 Because the system has no stable internal strategy, it frantically grasps at *any* available strategy in the moment to manage the overwhelming anxiety. This results in the rapid and violent oscillation between the extreme poles of the Primal Response Axis.
 
-This is the underlying mechanic of Borderline Personality Disorder (BPD). The person is not *being* a Tyrant or an Abdicator; they are desperately *using* those patterns as temporary life rafts in a chaotic sea.
-
 *   **The Abdicator Pole ("Move Away/Collapse"):** When the terror of abandonment is primary, the system grabs the Abdicator strategy. This manifests as frantic clinging, self-abnegation, and a desperate plea for connection ("Please don't leave me, I'm nothing").
 *   **The Tyrant Pole ("Move Against"):** When the terror of being hurt or controlled becomes primary, the system grabs the Tyrant strategy. This manifests as intense, inappropriate anger, devaluation of others, and pushing away connection ("You're trying to destroy me, I'll hurt you first!").
 
