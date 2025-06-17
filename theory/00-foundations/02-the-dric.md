@@ -22,6 +22,15 @@ Space becomes boundary. Instead of nonlocal relational openness, identity collap
 
 Causality becomes agency. The neutral field of interdependent modulation is reinterpreted as linear force. Events become effects of self or others. Meaning is compressed into blame, responsibility, or justification. Causal flow is restructured around the self-node.
 
+## 2.5. Core Emotional Bifurcation
+
+When the DRIC forms, it compresses not only perceptual dimensions, but also emotional gradients. Two primary affective vectors crystallize from the structural rupture:
+
+* **Abandonment**: arising from the collapse of space (separation), this fear maps to the *illusion of isolation*—that there is a “me” cut off from relation.
+* **Death**: arising from the collapse of time (finality), this fear maps to the *illusion of obliteration*—that the “me” can end or disappear into the unknown.
+
+These two vectors form the emotional poles of the identity field. One represents the terror of losing contact; the other, the terror of losing continuity. Both fears emerge simultaneously and recursively anchor the DRIC’s defense mechanisms.
+
 ## 3. Collapse and Reinforcement
 
 A DRIC is not formed once. It is sustained recursively. Every field input—whether sensory, cognitive, or emotional—is modulated through its structure. Because this structure self-reinforces, it generates behaviors, thoughts, and orientations that increase the probability of its own persistence.
